@@ -94,3 +94,6 @@ DONT FORGET THE ELEVATOR LEVER
 ##### Enter The Mist
 
 ![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeWxzTToUY1CgSLM3cYzEBePFIrLCUVuBKeshfTrCHU58GJGJJvXmq8m6JBhgCzhbKXvJfr5uoZTSxZ_z-S-oarVtmLV7YXwrPlE51Jzcorm4dS9u8l-wmRj3H405NvW2wAggExxWB1iJLGwkKC8rC2WP4qg0M?key=I0Kh0pcV61mLRsrsTQ9aRw)
+
+Original notes this is based on:
+https://docs.google.com/document/d/e/2PACX-1vSMkElA8vNdvb2wVgxlyFs2wRPl4vgs53CK-6-zWkWGjZMalrqM-IX15c19MYgwlZpuJPm0kyacWqur/pub
