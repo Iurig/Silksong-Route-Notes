@@ -85,13 +85,11 @@ DONT FORGET THE ELEVATOR LEVER
 
 ##### Route until Swift Step
 
-<img width="3744" height="736" alt="image" src="https://github.com/user-attachments/assets/516c30b5-c034-4d1a-801e-e3a89c591cba" />
-
+<img width="3143" height="653" alt="image" src="https://github.com/user-attachments/assets/7adcf473-b920-4ed5-b6ae-2707ea139064" />
 
 ##### Route until purchasing Simple Key
 
-<img width="3143" height="653" alt="image" src="https://github.com/user-attachments/assets/7adcf473-b920-4ed5-b6ae-2707ea139064" />
-
+<img width="3744" height="736" alt="image" src="https://github.com/user-attachments/assets/516c30b5-c034-4d1a-801e-e3a89c591cba" />
 
 ##### Enter The Mist
 
